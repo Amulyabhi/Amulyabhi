@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @S ABHINAV KUMAR 
 - 👀 I’m interested in car racing
 - 🌱 I’m currently learning about myself 
-- 💞️ I’m looking to collaborate on abhi__0709
+- 💞️ I’m looking to collaborate on __abhi_0709
 - 📫 How to reach me by email 
-- 😄 Pronouns: amulya 
+- 😄 Pronouns: ABHI
 - ⚡ Fun fact: 😊
 
 <!---
